@@ -2,7 +2,8 @@
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning html and css
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me instagram @abdul_axad7
+- 📫 How to reach me instagram @abdul_axad7 and telegram @legend_axad
+_ email abdulaxadjon9@gmail.com
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: Social
 
